@@ -1,0 +1,1 @@
+# bara-for-idag-andakt-
